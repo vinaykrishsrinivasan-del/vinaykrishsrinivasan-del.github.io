@@ -1,2 +1,1 @@
-#[ v1nay.lovable.app
-](url)
+#vinaykrishsrinivasan-del.github.io
