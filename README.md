@@ -1,1 +1,1 @@
-# vinaykrishsrinivasan-del.github.io
+# v1nay.lovable.app
